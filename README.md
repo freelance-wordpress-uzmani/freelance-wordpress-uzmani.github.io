@@ -1,1 +1,1 @@
-# freelance-wordpress-uzmani
+# freelance wordpress uzmani
